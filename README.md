@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @chimpmunk-hqp
+- 👀 I’m interested in learning how to code
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me: you dont
